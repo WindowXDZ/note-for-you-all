@@ -13,3 +13,4 @@ CAN I PLEASE GET  FRIENDS WHICH ACTUALLY MATCHES MY VIBE
 
 
 yes i know ts is like no sense but idk 
+anyways um yes eggs um yes idk anymore
