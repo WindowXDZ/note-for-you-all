@@ -20,3 +20,6 @@ dont
 worry
 LMFAO
 
+# footer
+peaut anyways im not dead
+also to :3 im ok dw im not killing myself or aynthing i just find everything boring rn
