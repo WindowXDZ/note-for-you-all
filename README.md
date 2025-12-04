@@ -11,7 +11,7 @@ life is boring.
 CAN I PLEASE GET  FRIENDS WHICH ACTUALLY MATCHES MY VIBE
 
 
-
+# Peanut
 yes i know ts is like no sense but idk 
 anyways um yes eggs um yes idk anymore
 anyways what i meant on this is like im bored and idk what to do on discord so just pretend im sleeping or something lmfao
